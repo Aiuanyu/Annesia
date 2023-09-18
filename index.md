@@ -1,8 +1,8 @@
 按呢寫
 ===
 
-- [頭路](https://aiuanyu.github.io/Annesia/265.pdf)
-- [枵](https://aiuanyu.github.io/Annesia/265.pdf)
+- [頭路 thâu-lōo](https://aiuanyu.github.io/Annesia/265.pdf)
+- [枵 iau](https://aiuanyu.github.io/Annesia/265.pdf)
 - [熱 jua̍h](https://aiuanyu.github.io/Annesia/266.pdf)
 - [刁工 thiau-kang](https://aiuanyu.github.io/Annesia/266.pdf)
 - [囡仔囝 gín-á-kiánn](https://aiuanyu.github.io/Annesia/267.pdf)
